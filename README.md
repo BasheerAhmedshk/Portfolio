@@ -1,5 +1,3 @@
-# Portfolio
-
 # Shaik BASHEER AHMED
 
 📧 basheerahmedshk@gmail.com  
